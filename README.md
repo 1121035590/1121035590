@@ -5,7 +5,7 @@ Vitor Gabriel do Nascimento Oliveira  (04/06/2024)
     -Utilizo esse espaço para minha organização dos meus projetos desenvolvidos
 
 
-![](https://tenor.com/pt-BR/view/nerd-nerd-emoji-gif-1712163874519931175)
+![](https://media1.tenor.com/m/KWobkKSWriwAAAAd/nerd.gif)
 
 
 
